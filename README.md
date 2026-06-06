@@ -1,5 +1,5 @@
 # 💫 About Me:
-B.Tech Final Year<br>Looking for a Good Job and Keep My Parents Happy and Proud about Me<br>Iam currently Learning Data Analytics(data analysis)<br>
+B.Tech Completed <br>Looking for a Good Job and Keep My Parents Happy and Proud about Me<br>Iam currently Learning Data Analytics(data analysis)<br>
 
 
 ## 🌐 Socials:
